@@ -1,0 +1,2 @@
+# PALENCIA_q1tla1
+Made by PALENCIA BSCS- 2A
